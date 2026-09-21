@@ -1,4 +1,4 @@
-# Chocolate Raspberry Celebration Cake
+# Chocolate Caramel Celebration Cake
 
 This recipe makes a three-layer celebration cake with a raspberry filling between each layer and chocolate frosting on the outside.
 
@@ -18,8 +18,8 @@ This recipe makes a three-layer celebration cake with a raspberry filling betwee
 
 ## Filling
 
-- 1 1/2 cups raspberry preserves
-- 1 cup fresh raspberries
+- 1 1/2 cups salted caramel sauce
+- 1 cup chopped toasted pecans
 
 ## Frosting
 
@@ -31,8 +31,8 @@ This recipe makes a three-layer celebration cake with a raspberry filling betwee
 
 ## Decoration
 
-- Fresh raspberries
-- A dusting of powdered sugar
+- Chocolate curls
+- A drizzle of salted caramel sauce
 
 ## Instructions
 
@@ -40,13 +40,13 @@ This recipe makes a three-layer celebration cake with a raspberry filling betwee
 
 2. In a large bowl, whisk together the flour, sugar, baking powder, baking soda, and salt.
 
-3. Add the eggs, milk, vegetable oil, and vanilla. Mix until the batter is smooth.
+3. Add the eggs, milk, vegetable oil, and vanilla. Mix until the batter is smooth and well combined.
 
 4. Add the cocoa powder and dark chocolate chips. Mix until evenly combined.
 
 5. Divide the batter evenly among the three prepared pans.
 
-6. Bake for 22–27 minutes, or until a toothpick inserted into the centre of each cake comes out clean.
+6. Bake for 25–30 minutes, or until a toothpick inserted into the centre of each cake comes out clean.
 
 7. Let the cakes cool in their pans for 10 minutes, then transfer them to a wire rack to cool completely.
 
